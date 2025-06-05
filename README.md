@@ -1,7 +1,7 @@
 # We’ve finally released our Bless soft!   
 
 * 🔥 The paid version is available. Supports any accounts — register with your own referral code!
-* **📩 Join us to get full information**: https://t.me/
+* **📩 Join us to get full information**: https://t.me/CRYPT0S0FT
 
 **🚀 What can the software do?**
 
